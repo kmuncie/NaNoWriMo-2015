@@ -1,2 +1,9 @@
 # New Novel
 ## NaNoWriMo 2015
+
+A gin and tonic with a touch of pine. What more do you need?
+
+On a lazy Sunday, directly after a long day out in the suburbs, Dan was contemplating all of mankind enjoying a similar day devoid of pants. "Pants bring oppression upon all of mankind. Thousands of years ago men didn't wear pants, they enjoyed the freedom of a long dress-like garment which kept them cool and comfortable" he thought. Dan very rarely wore pants while at home, it was his space to be free, and why would he want to be anything but comfortable? The home is a place filled with fluffy furniture designed to be lounged upon, a perfect place to to enjoy a pants free day. 
+
+Beyond pants Dan often let his mind take him down odd alley ways into obscure ideas. But more often than not, these moments of contemplation would be shattered by the concerns and cares of "normal" life. Dan wrote code for a living. It brought a good income and the possibility for stimulating work, but more commonly was a job like any other. The main beneift of being someone who wrote code was that it allowed for work to be done in almost any location, and home was usually the prefered place. This is why Dan so often was at home, wearing no pants, while working on his computer. He loved his computer, an older Thinkpad laptop with a beautifully tactile keyboard and trackpoint which allowed for very little movement of the hands while working. Modern laptops were faster, but usually got the ergonomics all wrong. This was all looking past the reality of modern laptops costing far more than Dan wanted to spend at the time. Work was abundant but Dan was not interested in working a great deal.
+
